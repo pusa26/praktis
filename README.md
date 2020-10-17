@@ -1,0 +1,2 @@
+# praktis
+pasok mga pre
